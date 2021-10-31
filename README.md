@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Hiruso
+- 👀 I’m interested in octopus.
+- 🌱 I’m currently learning to be octopussss.
+- 📫 I live in the ocean.
